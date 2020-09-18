@@ -4,7 +4,7 @@
 #### _Minsk, Belarus_
 ___
 ## **Contacts:**
-* +3752966707 (viber, telegram)
+* +375296670758 (viber, telegram)
 * e-mail: pavel.kv94@yandex.by
 * LinkedIn: https://www.linkedin.com/in/pavel-kv94/
 * VK: https://vk.com/paul_kv
